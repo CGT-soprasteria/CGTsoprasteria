@@ -1,0 +1,2 @@
+# CGTsoprasteria
+syndicat
